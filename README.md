@@ -27,7 +27,7 @@
 
 ## Achievements
 
-- **[HAXAGON Finals 2026](https://haxagon.cz/skirmish)** — **finalist, 24th overall out of 26,000 participants**
+- **[HAXAGON Finals 2026](https://haxagon.cz/skirmish)** — **finalist, 24th overall out of 23,000 participants**
 
 ---
 
